@@ -1,2 +1,1 @@
-# studious-doodle
-study
+率土之滨，莫非王土
